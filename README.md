@@ -1,6 +1,6 @@
 # Christian Books
 
-[Raising a Modern-Day Knight: A Father's Role in Guiding His Son to Authentic Manhood](https://www.amazon.com/Raising-Modern-Day-Knight-Fathers-Authentic/dp/1589973097)
+[Raising a Modern-Day Knight: A Father's Role in Guiding His Son to Authentic Manhood](https://www.amazon.com/Raising-Modern-Day-Knight-Fathers-Authentic/dp/1589973097) by Robert Lewis
 
 [What Every Child Should Know About Prayer](https://www.nancyguthrie.com/what-every-child-should-know-about-prayer) by Nancy Guthrie
 
